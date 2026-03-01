@@ -1,0 +1,1 @@
+internal sense of wellbeing, which give us [[Confidence]]. To have a seratonin is to do the hard things, painful things and survive it and bask on the accomplishment that you did do that, that rewards us the seratonin. The seratonin activities are things that can challanging but lead to [[contentment]], not [[pleasure]].

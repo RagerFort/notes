@@ -1,0 +1,1 @@
+it governs our survival instict and negative emotion, it make us feel fear, anxiety, and panic etc.. It become more hyperactive when kunti lang yung [[Seratonin]] natin. To fix this is to earn seratonin to offset the fear, anxiety or panic.

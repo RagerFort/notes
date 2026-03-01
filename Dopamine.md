@@ -1,0 +1,2 @@
+is the neurotransmitter na nagbibigay ng reward, [[Pleasure]], and [[Behavorial reinforcement]], galing siya sa external na fun or pleasurable 
+which means: external pleasure -> dopamine -> behavorial reinforcement.

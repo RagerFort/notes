@@ -1,0 +1,3 @@
+is a crucial brain structure involved in memory formation, learning, and emotional processing, resembling a seahorse in shape. Ang role neto is ang pang compounds ang short term to long term process. This process activates during sleep kaya ibig sabihin neto ay dapat meron tayon sapat na pagtulog para maging effective ang pag tuto. 
+
+It sits right next to [[Amygdala]], the most primary motivator for our learning is negative emotion.

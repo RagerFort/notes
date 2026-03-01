@@ -1,0 +1,1 @@
+its characterized as a way to do the task for its inherent satisfaction, while [[extrinsic motivation]] are the opposite

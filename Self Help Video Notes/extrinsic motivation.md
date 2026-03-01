@@ -1,0 +1,1 @@
+describes behavior driven by external rewards or punishments, abstract or concrete.

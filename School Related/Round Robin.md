@@ -1,0 +1,1 @@
+First you get the time quantum of it, form a timeline that references on the arrival time, follow the sequence, and don't forget to  

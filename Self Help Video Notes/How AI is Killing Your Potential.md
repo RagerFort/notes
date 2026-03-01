@@ -1,0 +1,4 @@
+Made by [[Doctor K]], na sinasabi na ang ai ay nagbibigay lang ng surface level na madali lang kunin parang google lang siya basically. **Impact of Ai usage are: rust our brain. Rusting means the critical thinking deminished, our capacity to think deminished, because when we use our brain more, it gets better but by doing the opposite, it degrades.** 
+**The more you use AI, the more risk of your job becoming replace increases**. To invest in yourself na hindi mapapalitan ng AI ay gamitin natin ang deep learning, to read a large amout of book. The AI is good at learning on what makes people happy. AI usage depends on the base knowledge of the user, it extends own's expertise.
+
+	https://www.youtube.com/watch?v=BzsLbHoNXTs
